@@ -1,2 +1,2 @@
 # HARARE-ADS
-HARARE #1 Marketplace 
+HARARE #1 Marketpla
